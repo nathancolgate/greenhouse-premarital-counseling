@@ -81,7 +81,7 @@ Real Marriage 3 questions or comments each.
 
 > “[Marriage] challenges the contemporary Western culture’s narrative of individual freedom as the only way to be happy.” – Tim Keller
 
-**Activity:** Take recreational survey
+**Activity:** [Take recreational survey](https://www.marriagebuilders.com/download/library/questionnaires/recreational-enjoyment-inventory-6.pdf)
 
 **Questions:** Children
 
