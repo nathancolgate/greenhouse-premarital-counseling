@@ -122,6 +122,25 @@ Real Marriage 3 questions or comments each.
 
 ### Session 7
 
+**Thoughts from Jared:**
+
+What does sex do?
+
+* One well- limits where we drink from.
+* Way to serve one another.
+* Relieves stress
+* Adventure. We tried something new together.
+* Not a biological need, but is a biological appetite.
+* Secret language throughout the day.
+* Gives bargaining power to weaker women… be careful not to manipulate.
+* Shapes our ideal - Refer to one flesh sermon
+* Requires creativity
+* Intimate/ known- Being known outside of the bedroom leads to being known inside the bedroom.
+* Biologically speaking, it teaches men to be patient and use finesse.
+* Makes babies (Conception is the only biological function that requires both genders)
+* Vulnerable-sign that I trust you more.
+* Fun
+
 **Questions:** Sex
 
 * Can we talk about sex?
@@ -130,6 +149,7 @@ Real Marriage 3 questions or comments each.
 * What are your expectations of our sexual relationship?
 * How will we make decisions together?
 * How many nights of sex is normal?
+
 
 ### Session 8
 
